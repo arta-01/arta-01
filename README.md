@@ -1,5 +1,5 @@
-# 💫 About Me:
-Blockchain and Website Programmer
+# 💫 About Arta:
+Blockchain and Website Programmer :)
 
 
 ## 🌐 Socials:
