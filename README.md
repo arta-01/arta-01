@@ -1,7 +1,7 @@
-# 💫 About Arta:
-🧑‍💻Blockchain and Website Programmer
-🩺a bit of a Nurse
-  and Digital Marketer :)
+# 🪐About Arta:
+Blockchain and Website Programmer💻
+a bit of a Nurse🩺
+and Digital Marketer :)
 
 
 ## 🌐 Socials:
